@@ -1,4 +1,4 @@
  <p align="center">
- <a href="https://rentry.co/sweetyp/"><img src="https://64.media.tumblr.com/68f7cef45674081538c67d0d0dcdaa5a/966aa06dfdcdf3d7-d8/s250x400/29e8810f7187a4c20a19bf966c4a90e8faea2c83.pnj" width="200"/>
+ <a href="https://rentry.co/sweetyp/"><img src="https://64.media.tumblr.com/9b8e33af2b488e497463d69db46d8c4f/519d768472f59b79-94/s250x400/a05716cd327ac1cd2490aa94ba0f4406dac0e01d.pnj" width="200"/>
 <p align="center">
 𝓘nfo ꣑ৎ
